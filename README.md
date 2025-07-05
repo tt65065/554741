@@ -20,4 +20,4 @@
 
 如果你正在寻找一个长期稳定、资源丰富、值得收藏的日本AV免费观看网站，请将本站加入书签，每日回访不迷路，新片不再错过。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/tt65065/554741 ）</span>
